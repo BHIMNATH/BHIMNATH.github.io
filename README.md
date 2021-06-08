@@ -1,2 +1,1 @@
-# BHIMNATH.github.io
-# BHIMNATH.github.io
+# bymcareer.github.io
